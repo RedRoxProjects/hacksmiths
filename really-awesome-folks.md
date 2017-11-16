@@ -1,3 +1,3 @@
 I really enjoyed this workshop with these awesome people: 
 * Ollie
-* Ellie - Echolalien
+* Ellie - Echolalien :alien:
