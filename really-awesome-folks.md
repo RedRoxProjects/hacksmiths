@@ -1,7 +1,4 @@
 I really enjoyed this workshop with these awesome people: 
 
-* Jesse  jessewolpert :spaghetti:
-
-
-* Miki @mikic387
+* Miki @mikic387 :honeybee:
 * Ollie - oliverdhayden :bowtie:
