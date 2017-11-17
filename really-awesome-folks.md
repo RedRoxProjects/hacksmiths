@@ -1,5 +1,6 @@
 I really enjoyed this workshop with these awesome people: 
 
+* Bosco 
 * David
 * Emma: I think this is how I change the document but I'm not sure 😂
 * Gabe
