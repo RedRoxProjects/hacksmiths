@@ -1,5 +1,6 @@
 I really enjoyed this workshop with these awesome people: 
 
+* Gabe
 * Sandra :-)
 * Jacob :beer:
 * Ellie - Echolalien :alien:
